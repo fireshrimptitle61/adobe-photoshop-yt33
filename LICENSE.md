@@ -1,4 +1,4 @@
-# 
+# automatic Adobe Photoshop para PC addons es el mejor Adobe Photoshop para PC addons con estilos de párrafo y herramientas de colaboración. Seguro, confiable y optimizado para el
 
 
 
